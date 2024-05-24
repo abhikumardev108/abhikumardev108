@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **abhishek_k.cse2021@msit.edu.in**
 
-- ⚡ Fun fact **I think am I am funny😎.**
+- ⚡ Fun fact **I think I am funny😎.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
